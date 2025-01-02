@@ -35,4 +35,4 @@ With the free time I have, I enjoy:
 
 
   If you read up to here, thank you so much for stopping by! 
-  You deserve a reward! ✌🏾
+  You deserve a [reward][https://thenicestplace.net/]! ✌🏾
