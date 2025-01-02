@@ -20,6 +20,7 @@ With the free time I have, I enjoy:
 * Trying out new recipes👩🏾‍🍳
 * Reading/Writing ✍🏾
 * Spending time with family🌟
+* Learning new languages(I currently speak 5)🗣
   
 
 ##  My Goals 🎯
