@@ -20,7 +20,7 @@ With the free time I have, I enjoy:
 * Trying out new recipes👩🏾‍🍳
 * Reading/Writing ✍🏾
 * Spending time with family🌟
-* Learning new languages(I currently speak 5)🗣
+* Learning new languages(I currently speak 5)💬
   
 
 ##  My Goals 🎯
@@ -33,7 +33,12 @@ With the free time I have, I enjoy:
   * Enhance my skills in Data and Computer Science👩🏾‍💻
 
 
-I would also love to connect and collaborate, please feel free to [email](abbiihjahoyeoku@gmail.com) me!
+_Being an ambitious overthinker, I often have bright ideas, but fall short of execution.
+An additional goal for this year would be to take the leap of faith and believe in my
+ability to succeed in whatsoever I put my mind to._ 💭
+
+
+
   
 
   If you read up to here, thank you so much for stopping by! 
