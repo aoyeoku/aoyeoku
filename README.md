@@ -31,9 +31,13 @@ With the free time I have, I enjoy:
   * Overcome my fear of coding 🫣
   
   * Enhance my skills in Data and Computer Science👩🏾‍💻
+
+
+I would also love to connect and collaborate, please feel free to [email](abbiihjahoyeoku@gmail.com) me!
   
-
-
 
   If you read up to here, thank you so much for stopping by! 
   You deserve a [reward](https://thenicestplace.net/)! ✌🏾
+
+
+  
